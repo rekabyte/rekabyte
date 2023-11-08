@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **khalilplaybox@outlook.fr**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
